@@ -5,4 +5,4 @@ Collection of slides, material, and information resources related to previous pr
 * **3 June **: 3-hour presentation of independent degree project
 
 ## Additional information
-Feel free to contact me(mailto:angelicagardner@outlook.com) if you have any questions.
+Feel free to contact me(angelicagardner@outlook.com) if you have any questions.
