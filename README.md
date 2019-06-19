@@ -3,6 +3,7 @@ Collection of slides, material, and information resources related to previous pr
 
 ## Presentations
 * 3 June: 2-hour presentation of independent degree project
+* 21 June: 1-hour presentation of traction project result
 
 ## Additional information
 Feel free to contact me(angelicagardner@outlook.com) if you have any questions.
